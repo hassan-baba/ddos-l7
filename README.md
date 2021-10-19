@@ -1,2 +1,1 @@
-# ddos-l7
-دیداسر لایر7
+# DDOSERGOD
